@@ -1,2 +1,0 @@
-# annapetrovic@gmx.ch
-## AnnaPrki
